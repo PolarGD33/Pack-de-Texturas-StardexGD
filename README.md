@@ -1,0 +1,1 @@
+# Pack de Texturas StardexGD
